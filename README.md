@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @TraderSara
+- 👀 I’m interested in swimming , cycling and MMA
+- 🌱 I'm learning now how to type fast on coding
+- 💞️ I want to start my own company called UHI in the future
+- 📫 How to reach me on telegram messsenger
